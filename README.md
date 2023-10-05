@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ivana1110
+- 👀 I’m interested in Java programing, working in projects for free to get expirience. So if you need any help, let me know. 📞
+- 🌱 I’m currently learning fundamentals of Java. 
+- 💞️ I’m looking to collaborate on any tipe of projects/practice to get expirience. 
+- 📫 How to reach me: ivanan90@gmail.com or https://www.linkedin.com/in/ivana-nesovic
+- 🎓 My educational level is master's degree in mathematics.
